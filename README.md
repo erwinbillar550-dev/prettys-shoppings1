@@ -1,1 +1,0 @@
-# prettys-shoppings1
